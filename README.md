@@ -1,7 +1,7 @@
 
 ###
 
-<h1 align="left">Hi there! I'm Anna Jiang 👋</h1>
+<h1 align="left">Hi there! I'm Zara Humaira👋</h1>
 
 ###
 
